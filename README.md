@@ -28,4 +28,4 @@ ALL HAIL ZOMBOZZ.
   <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/pony-town-%F0%9F%A7%A0%20%E3%80%A2%20OBEY%20ZOMBOSS%20%E3%80%A2%20hvy%20comf-sit-blush-blinking-padded-ponyplush-4x.gif" /> <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Destra%20kiss.gif" </>
 </p>
 
-Dr. Zomboss and his 7'4'' galactic queen  <sub>(my OC)</sub>
+Dr. Zomboss and his 7'4'' galactic queen
