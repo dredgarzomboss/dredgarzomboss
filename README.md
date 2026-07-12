@@ -4,7 +4,7 @@
 
 <div align="center">
 
-I WANT YOU FOR Z ARMY
+OBEY ZOMBOSS
 
 <p align="center">
   <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Sitting%20Zomboss.gif" /> <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Destra%20kissing.gif" /> <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Susie%20dancing.gif" />
