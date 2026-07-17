@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/DrZomboss.gif" height="300" width="500" />
+  <img src="https://file.garden/Z0TC-0mCggxGeVLO/GIFs/Zombie%20graduation.gif" height="300" width="500" />
 </p>
 
 <div align="center">
